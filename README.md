@@ -33,8 +33,8 @@
  ![c](./path.png)
  
  ## Credit
- #### - Vikas Kushwaha
- #### - connect with me [LinkedIn](https://linkedin.com/in/vikas-kushwaha-165b95204)
+ #### - YUG THAKRAL
+ #### - connect with me [https://www.linkedin.com/in/yug-thakral-a38252317/]
  
  
  
